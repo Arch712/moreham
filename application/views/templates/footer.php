@@ -1,0 +1,1 @@
+<hr><footer>&copy; 2025 Moreham Bioskop</footer></body></html>
